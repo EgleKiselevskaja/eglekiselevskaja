@@ -1,8 +1,11 @@
 ## Hi there, I am Egle 👋 Glad to see you here!
 
 👾 I’m currently a student at Turing College, Data Analytics
+
 ✔️ I Already have skills working with Business Intelligence tools such as Power BI, Big Query (SQL), MS Office
+
 ❗ Looking forward to learn Python
+
 
 💁 I have various experience in financial data analysis working across different sectors
 
