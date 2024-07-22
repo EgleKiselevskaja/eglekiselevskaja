@@ -11,5 +11,5 @@
 
 👉 I am seeking a challenging role in a data-driven organization where my data analysis skills and critical thinking can be utilized to drive growth and innovation
 
-⭐ Reach me through LinkedIn www.linkedin.com/in/eglė-kiselevskaja-86a08694
+⭐ Reach me through LinkedIn www.linkedin.com/in/eglė-kiselevskaja
 
